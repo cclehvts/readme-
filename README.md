@@ -19,5 +19,3 @@ I and my team are interested in areas such as:
 - Smart contracts.
 
 I hope we can build relationships for the common development of humanity. We are human, which means we can always rally together and make the world a better place based on past mistakes!
-
-Translated with www.DeepL.com/Translator (free version)
